@@ -24,4 +24,4 @@ Outro fator bastante atrativo é a possibilidade do trabalho remoto. Profissiona
 
 Cada pessoa tem um processo diferente até tomar a decisão de mudar de profissão, mas é muito importante ter o autoconhecimento para identificar se realmente é algo que vai se encaixar na sua rotina de vida e de trabalho. Agora que você conheceu alguns pontos de desafios que virão pela frente, esta escolha se torna mais clara para decidir se este é o melhor caminho para seguir.
 
-                                                                                                                         Boa sorte e bons estudos!
+                                                                                                           Boa sorte e bons estudos!
